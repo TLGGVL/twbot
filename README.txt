@@ -1,1 +1,1 @@
-klanlar bot denemesi
+klanlar bot denemesiv2
